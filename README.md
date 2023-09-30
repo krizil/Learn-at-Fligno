@@ -1,5 +1,1 @@
-Sample 1
-
-Sample 2
-
-Sample 3
+Kryzl A. Dela Cruz BS in Computer Engineering
