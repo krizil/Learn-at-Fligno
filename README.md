@@ -1,3 +1,5 @@
-# Learn-at-Fligno
+Sample 1
 
-Kryzl A. Dela Cruz BS in Computer Engineering
+Sample 2
+
+Sample 3
